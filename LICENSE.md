@@ -1,4 +1,4 @@
-#  
+#  ultimate mining tycoon exclusive Scripts is the best ultimate mining tycoon Script, featuring auto-collect and speed. Safe and powerful for all your
 
 
 
